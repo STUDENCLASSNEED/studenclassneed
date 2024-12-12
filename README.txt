@@ -1,4 +1,3 @@
-Configuro Web | Red Social
 
 **DETALLES DE REGISTRO**
 
